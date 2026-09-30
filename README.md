@@ -232,7 +232,8 @@ B.Tech – Computer Science & Engineering (AI & DS)
 Machine Learning & Computer Vision Enthusiast
 
 LinkedIn:
-https://www.linkedin.com/in/abhishek-yadav-43199441a
+www.linkedin.com/in/abhishekyadav110
+
 
 ---
 
